@@ -1,4 +1,4 @@
-# 👋 Romania Roleplay
+# 👋 România Roleplay
 
 - România Roleplay reprezintă o comunitate de hard roleplay care rulează prin intermediul platformei RAGE Multiplayer. Înfiinţată în data de 21 decembrie 2011, comunitatea este în continuă dezvoltare, dovadă fiind sistemele noi, actualizările frecvente, dar şi User Control Panel-ul avansat. Având în vedere cele menţionate, comunitatea românească de hard roleplay a urcat imediat în top, fiind prima şi singura care să atingă un număr de 500 de jucători online în acelaşi timp.
 
